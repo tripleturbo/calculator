@@ -1,4 +1,4 @@
 # calculator
 
-정수하세요ㅎ
+live long my king
 test
